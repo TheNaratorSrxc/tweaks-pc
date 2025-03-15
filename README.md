@@ -1,2 +1,2 @@
 # tweaks-pc
-tweaks for pc
+donlowad it and open it as administator
